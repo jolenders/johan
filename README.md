@@ -1,3 +1,3 @@
 # johan
 johanaa
-# +1 legit from tele @mmosp2021
+i am cooked
